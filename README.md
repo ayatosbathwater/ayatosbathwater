@@ -4,7 +4,7 @@
 ![alt text](https://static.wikia.nocookie.net/gensin-impact/images/5/5d/Icon_Emoji_HEYTEA_Kamisato_Ayato_6.png/revision/latest?cb=20220911020921)
 
 hey google how to readme uhh
-
+also im an ayato and sunday yumedanshi if it wasn't obvious enough, hypersharing!!
 ฅ^.ᆺ.^ฅ
 sum blinkies n stamps n stuff cuz i feel like it
 
